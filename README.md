@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mochsu
+- 👋 Hi, I’m Mal James @mochsu
 - 👀 I’m interested in learning code that can help in child surgeries in developing countries and Inner Melbourne Top End Real Estate
 - 🌱 I’m currently learning the basics at Monash and RMIT
 - 💞️ I’m looking to collaborate on anything that can help what I am interest in 
